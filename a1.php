@@ -1,3 +1,0 @@
-abcd
-wieifw
-eehhhh
